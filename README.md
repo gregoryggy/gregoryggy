@@ -1,4 +1,4 @@
-$${\color{purple}gregory　irl}$$
+$${\color{purple}gregory　/　greg　/　ggy}$$
 $${\color{yellow}december　5th　we　will　all　do　something}$$
 
 
