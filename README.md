@@ -2,4 +2,5 @@ $${\color{purple}gregory　/　greg　/　ggy}$$
 $${\color{yellow}december　5th　we　will　all　do　something}$$
 
 
-![8 sin título_20250501234554](https://github.com/user-attachments/assets/d3c80315-7bd7-405b-aafd-c67a21457a07)
+
+![images (2)](https://github.com/user-attachments/assets/20eeeb4b-3776-4684-ba1f-e2932a377d05)
