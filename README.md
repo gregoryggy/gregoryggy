@@ -1,5 +1,5 @@
-$${\color{purple}gregory　/　greg　/　ggy}$$
-$${\color{yellow}december　5th　we　will　all　do　something}$$
+$${\color{blue}gregory　/　greg　/　ggy}$$
+$${\color{blue}december　5th　we　will　all　do　something}$$
 
 
 
